@@ -1,0 +1,1 @@
+Oh Allah ! Please give me her
